@@ -1,4 +1,4 @@
-### Hi there 👋
+Fi you want to join the EQcoin core development team feel free to contract 10509759@qq.com... 
 
 <!--
 **eqzip/eqzip** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
